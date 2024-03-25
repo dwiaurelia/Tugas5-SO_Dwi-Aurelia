@@ -1,1 +1,0 @@
-# Tugas5-SO_Dwi-Aurelia
